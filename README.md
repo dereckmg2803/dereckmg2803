@@ -25,5 +25,5 @@ Soy Ingeniero en Sistemas con experiencia en el desarrollo de aplicaciones web y
 
 🚀 Siempre abierto a colaborar en proyectos interesantes. ¡Nos vemos en el código!  
 
-📫 **Contacto:** [Tu correo o redes aquí]
+📫 **Contacto:** dereck.mg2803@gmail.com
 
